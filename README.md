@@ -5,3 +5,4 @@ Undetected Free CS2 Cheats by anyx.gg
 <p>Is this CS2 cheat undetected? Yes, our CS2 hacks are undetected.</p>
 <p>Do I need to download anything extra or reinstall my windows?<br />No!</p>
 <p>Mehr informationen &uuml;ber unseren <a href="https://anyx.gg/threads/free-cs2-cheats-free-cs2-hack-undetected.70/">Free CS2 Cheats</a> findest du auf der offiziellen website.</p>
+<p>Date: 17.12.2023 - Status<br />Undetected</p>
